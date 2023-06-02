@@ -2,3 +2,4 @@
 Grupo 7
 Saludos Equipo, me confirman si estan adentro
 Confirmado
+Ikian Saa - Confirmo
